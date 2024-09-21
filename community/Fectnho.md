@@ -5,7 +5,6 @@ I work in the quality and Lean area contributing to the continuous improvement o
 
 Some hobbies are trekking, spending time with my family and traveling 🥾🌍💚
 
-
 ### Connect with me
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/fernandacoutinho/)
 
